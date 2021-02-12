@@ -4,4 +4,4 @@ Rajmi Mester
 ------------
 Mr. Barna nagyon jokepu : - ) 
 ------------
-<3
+Veszélyes commitolni egyből a masterre!
