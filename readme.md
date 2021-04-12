@@ -1,7 +1,7 @@
-Hello world!! xD
+Hello world!!
 ------------
-Rajmi Mester
+v
 ------------
-Mr. Barna nagyon jokepu : - ) 
+up
 ------------
-<3
+<
